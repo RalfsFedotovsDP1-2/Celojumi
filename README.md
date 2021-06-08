@@ -1,1 +1,1 @@
-# Ce-ojumi
+# Ceļojumi
